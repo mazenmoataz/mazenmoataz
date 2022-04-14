@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mazen
+- 📍 I am somewhere Between 1s and 0s
+- 📫 How to reach me invoidable@gmail.com
